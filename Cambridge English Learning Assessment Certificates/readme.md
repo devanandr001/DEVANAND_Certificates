@@ -1,1 +1,1 @@
-as
+Cambridge English is a department of the University of Cambridge and is responsible for creating and delivering exams, qualifications and learning materials for English learners. These exams are recognized globally and are used by individuals, universities and organizations as a measure of English language proficiency.
